@@ -9,7 +9,7 @@ Olá sou Waldir jr.
 
 🚀 Em busca da **minha primeira oportunidade profissional** em QA
 
-👧 Pai de um doce de menuna de 16 anos.
+👧 Pai de um doce de menina de 16 anos.
 
 ---
 
